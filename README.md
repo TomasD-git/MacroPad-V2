@@ -10,3 +10,4 @@ Charging module  //  https://www.aliexpress.com/item/1005007176376691.html
 Slide switch  //  https://www.aliexpress.com/item/1005005633418066.html  
 Battery  //  https://www.aliexpress.com/item/32810182330.html  
 Battery holder  //  https://www.aliexpress.com/item/1005006783038553.html  
+Heatset inserts, M4 (OD5mm) 30pcs, Length 3mm  //  https://www.aliexpress.com/item/1005008666672949.html  
